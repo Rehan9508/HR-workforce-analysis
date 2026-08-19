@@ -94,12 +94,12 @@
 
 ## 👨‍💻 Developer
 
-**Kamran Majid**
+**Rehan Majid**
 
-- 💻 [GitHub](https://github.com/KamranMallick)
-- 🔗 [LinkedIn](https://www.linkedin.com/in/kamran-majid-6b1a9b245/)
-- :bird: [Twitter](https://x.com/kamran_Mallick_)
+- 💻 [GitHub](https://github.com/Rehan9508)
+- 🔗 [LinkedIn](linkedin.com/in/rehan-majid-7a83092a6)
+- 📷 [Instagram](https://www.instagram.com/rehan_mallickk_?igsh=MTFtYTNraTN2dTZ3Nw==_)
 
 ---
 
-> Crafted with 📊 by Kamran Majid.
+> Crafted with 📊 Rehan Majid.

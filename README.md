@@ -97,7 +97,7 @@
 **Rehan Majid**
 
 - 💻 [GitHub](https://github.com/Rehan9508)
-- 🔗 [LinkedIn](linkedin.com/in/rehan-majid-7a83092a6)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/rehan-majid-7a83092a6)
 - 📷 [Instagram](https://www.instagram.com/rehan_mallickk_?igsh=MTFtYTNraTN2dTZ3Nw==_)
 
 ---
